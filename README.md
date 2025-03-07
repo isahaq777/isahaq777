@@ -14,7 +14,7 @@ CERTIFICATIONS AND PARTICIPATIONS
 
 💬 Let's connect and collaborate on exciting projects!
 
-connect with me on [https://www.linkedin.com/in/isahaq-ahamed-beig-092204192/].
+connect with me on [https://www.linkedin.com/in/isahaq-beig-092204192/].
 
 Happy coding! 🚀
 
